@@ -1,4 +1,4 @@
-#  
+#  minecraft instant Scripts is the best minecraft Script, featuring private server access and one-hit kill. Safe and powerful for all your needs.
 
 
 
